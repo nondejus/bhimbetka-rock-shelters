@@ -1,1 +1,0 @@
-# bhimbetka-rock-shelters
